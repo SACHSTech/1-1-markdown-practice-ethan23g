@@ -35,11 +35,13 @@ As hip hop gained traction, artists began recording tracks commercially.
 - [Run-DMC](https://youtu.be/l-O5IHVhWj0) fused rock and rap, creating crossover hits.
 - [LL Cool J](https://youtu.be/vimZj8HW0Kg) and [Beastie Boys](https://youtu.be/07Y0cy-nvAg) brought hip hop to MTV audiences.
 
-4. The Golden Age of Hip Hop (Late 1980s–Mid 1990s)  
+## 4. The Golden Age of Hip Hop (Late 1980s–Mid 1990s)  
 
-Notorious B.I.G. (image link: https://i.imgur.com/aICxYyc.jpg)
+![Notorious B.I.G.](https://i.imgur.com/aICxYyc.jpg)
 
-The Golden Age is often described as the most creative and influential period of hip hop.  
+ > "I never sleep, 'cause sleep is the cousin of death." - Nas, *N.Y. State of Mind*
+
+The **Golden Age** is often described as the most creative and influential period of hip hop.  
 This era emphasized lyrical complexity, innovation in production, and a broad diversity of styles.  
 
 4.1 East Coast Greats  
